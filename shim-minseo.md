@@ -1,8 +1,8 @@
 ---
-Title: joker
+Title: Joker
 Year: 2019
 Genre: Film
-Disease: mental illness
+Disease: Mental illness
 ICD: ICD-11
 ---
 
