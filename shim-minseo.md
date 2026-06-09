@@ -17,10 +17,10 @@ In the film *Joker*, music functions not merely as a background element that exp
 <img src="https://github.com/user-attachments/assets/3f6d8cbb-f830-4cd3-a5a2-452c3fc6bff8" alt="Abstract image of Bathroom Dance" style="width:45%;" />
 
 
-#장례식에서 틀어졌으면 하는 노래:자장가–아이유
+# 장례식에서 틀어졌으면 하는 노래:자장가–아이유
 
 만약 내 장례식에서 연주될 음악을 선택할 수 있다면 아이유의 [자장가](https://youtu.be/aepREwo5Lio?si=HjXaA1XTzb56i978)를 선택하고 싶다. 이 곡은 잔잔하고 따뜻한 멜로디를 통해 슬픔보다는 위로와 평온함을 전해준다. 마치 긴 하루를 마치고 편안히 쉬라는 말을 건네는 것처럼 들려, 이별의 순간에도 따뜻한 감정을 남겨주는 노래라고 생각한다. 나는 장례식에 참석한 사람들이 깊은 슬픔에 머무르기보다 함께했던 소중한 추억을 떠올리며 위로를 받았으면 좋겠다. 또한 이 곡은 삶의 끝을 두려움이나 비극으로 바라보기보다 평안한 쉼의 순간으로 받아들이게 한다는 점에서 장례식에 잘 어울리는 음악이라고 생각한다.
 
-#A song I want to be played at a funeral: Lullaby-IU
+# A song I want to be played at a funeral: Lullaby-IU
 
 If I could choose a song to be played at my funeral, I would choose [Lullaby](https://youtu.be/aepREwo5Lio?si=G8mzjKmMJnOdcorz)by IU. The song has a warm and comforting melody that feels like a gentle farewell rather than a sad goodbye. Its lyrics offer comfort and peace, as if telling someone to rest well after a long and difficult journey. I would want the people attending my funeral to feel comforted rather than overwhelmed by grief. This song reflects my hope that they will remember me through warm memories and continue their lives with peace in their hearts.
